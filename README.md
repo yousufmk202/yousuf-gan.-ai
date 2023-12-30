@@ -1,1 +1,0 @@
-# yousuf-gan.-ai
